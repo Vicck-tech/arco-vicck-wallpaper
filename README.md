@@ -1,1 +1,1 @@
-# Viccktory-Wallpaper
+# Victory-Wallpaper
